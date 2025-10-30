@@ -26,9 +26,9 @@
 ---
 
 ### 🌐 Connect With Me
-📧 **Email:** yourname@example.com  
-💼 **LinkedIn:** [linkedin.com/in/ranjanamukhiya](#)  
-📸 **Instagram:** [instagram.com/ranjanamukhiya](#)
+📧 **Email:** ranjnamukhiya72@gmail.com  
+
+📸 **Instagram:** 
 
 ---
 
